@@ -1,4 +1,4 @@
-# 
+# Get the ultimate blur sniper bot with AI-powered NFT Trading Bot for blur sniper bot | multi-wallet-support & gas-fee-estimation. Featuring multi-wallet-support and
 
 
 
